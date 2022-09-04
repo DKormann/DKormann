@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DKormann
+- 👀 I’m interested in artificial intelligence because I'm not
+- 🪲 Call me windshield cause I'll be smashing them bugs
